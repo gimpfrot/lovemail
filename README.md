@@ -50,7 +50,7 @@ my favorite memories will always be with ivo.... if u dont have an ivo ur not li
 <p align="center">
 
 ewww who is this canadian in my lovemail.... Hi ivan I love you ivan. ur the sweetest boy ever 😢. youre always so nice and patient even when you have every reason not to be. you know me very well, and you know just how to get to me. 
-u brighten my hope for the future by a lot. youre a big part in my life and im sososososo glad youre still my friend. i cant say a lot without being a fag so umm yeah ok i love u or whateva....
+u brighten my hope for the future by a lot. youre a big part in my life and im sososososo glad youre still my friend (now boyfriend. Heh). i cant say a lot without being a fag so umm yeah ok i love u or whateva....
 
 
 </p>
